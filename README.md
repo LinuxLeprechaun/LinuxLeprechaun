@@ -1,1 +1,1 @@
-Following the pot of gold ^-^
+Following a pot of gold *-*
